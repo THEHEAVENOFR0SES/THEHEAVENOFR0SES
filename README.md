@@ -1,4 +1,4 @@
-wip ok
+will add more socials ok
 
 <div align="center">  
 
@@ -7,7 +7,7 @@ $${\color{#133f0f}𓈒𓈒 𓋰  𓏵 ︵︵}$$  $${\color{#2aa62a}  𒈔}$$[ል
 
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=5874B3&width=750&lines=...;...;...;...;...;...;...;...;...;...;“I’m+looking.”;...;...;...;...;...)](https://git.io/typing-svg) [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=21386c&width=750&lines=...;...;...;...;*Yeah...+I+came+out+here+just+to+see+these+eyes.*;*Even+though+I+acted+like+I+didn’t+give+a+damn;about+someone+like+you.*;*They+might+be+the+color+of+emeralds,;but+they+sure+burn+like+a+flame.*;*And+in+this+moment,+they+only+reflect+to+me.*;...;...;*If+the+flames+were+already+staring+me+down...*;*Why+not+just+enjoy+myself+for+a+while?*;...;...)](https://git.io/typing-svg) 
 
-<img width="2000" height="2000" alt="Image" src="https://github.com/user-attachments/assets/7f48e533-5aca-4392-b93e-ed24a7e0bcdc" />
+<img width="2000" height="2000" alt="Image" src="https://github.com/user-attachments/assets/b8cf5622-e541-4706-bd64-11dcc10ee729" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=45&pause=1000&color=5B6F66&width=750&lines=“Yujin.”;“You+were+just+messing+with+me;because+you+were+bored+without+me,+right?”;“Did+you+get+my+text?”;...;...;...;...;...;“Forget+everything+else+and+just+look+at+me.”;...;...;...;...;...;...)](https://git.io/typing-svg)
 
