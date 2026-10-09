@@ -2,6 +2,8 @@ will add more socials ok
 
 <div align="center">  
 
+ <img width="600" height="80" alt="Image" src="https://github.com/user-attachments/assets/672bb756-bd07-4140-846e-fb9f20217054" />
+ 
 [𝓟](https://pronouns.cc/@THEWEIGHTOFHIS.IS0LATI0N)$${\color{#071906}ዪዐ \color{#0a2608}ክዐ \color{#12300d}፱ክነ.ርር}$$   
 $${\color{#133f0f}𓈒𓈒 𓋰  𓏵 ︵︵}$$  $${\color{#00ff00}  𒈔}$$[𝓐](https://isolatedinhisnightmares.atabook.org/)$${\color{#14500f}ፕል፪ \color{#16630f}ዐዐኡ}$$
 
